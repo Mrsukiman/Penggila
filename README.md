@@ -1,0 +1,2 @@
+# penggila
+Bajak
